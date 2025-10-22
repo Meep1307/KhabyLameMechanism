@@ -1,1 +1,1 @@
-![Khaby Lame GIF](https://media.tenor.com/wD0sMQxl4XYAAAAC/khaby-lame-machine-khaby-lame.gif)
+![Khaby Lame Automatic](https://media.tenor.com/Y39P4Q6FRBsAAAAC/khaby-lame-automatic.gif)
